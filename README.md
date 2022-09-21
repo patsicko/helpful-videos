@@ -5,3 +5,5 @@
 
  watch this video Grit: the power of passion and perseverance | Angela Lee Duckworth
 ## [GRIT](https://youtu.be/H14bBuluwB8) <https://youtu.be/H14bBuluwB8>
+
+[THE POWER OF YET Carol Dweck](https://youtu.be/_X0mgOOSpLU) <https://youtu.be/_X0mgOOSpLU>
