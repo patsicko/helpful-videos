@@ -2,3 +2,5 @@
 
 
 ## [JavaScript Async/Await](https://www.youtube.com/watch?v=TeX-ecZH7Z8&list=PL1TrjkMQ8UbUfI0MCRTOjRWZ-wI_BuHbN&index=2)
+
+## [GRIT](https://youtu.be/H14bBuluwB8)
