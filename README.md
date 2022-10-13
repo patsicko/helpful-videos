@@ -7,3 +7,5 @@
 ## [GRIT](https://youtu.be/H14bBuluwB8) <https://youtu.be/H14bBuluwB8>
 
 [THE POWER OF YET Carol Dweck](https://youtu.be/_X0mgOOSpLU) <https://youtu.be/_X0mgOOSpLU>
+
+[Change your mindset, change the game | Dr. Alia Crum](https://youtu.be/0tqq66zwa7g)<https://youtu.be/0tqq66zwa7g>
