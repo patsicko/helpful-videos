@@ -9,3 +9,5 @@
 [THE POWER OF YET Carol Dweck](https://youtu.be/_X0mgOOSpLU) <https://youtu.be/_X0mgOOSpLU>
 
 [Change your mindset, change the game | Dr. Alia Crum](https://youtu.be/0tqq66zwa7g)<https://youtu.be/0tqq66zwa7g>
+
+[Mindset session: From Zero to Pro with Julien](https://youtu.be/uElO1SHWbM4)<https://youtu.be/uElO1SHWbM4>
